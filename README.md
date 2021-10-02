@@ -2,7 +2,7 @@
 - 👀 I’m interested in gardening, photography, music
 - 🌱 I’m currently learning photography 
 - 💞️ I’m looking to collaborate on photography,  music
-- 📫 How to reach me- email
+- 📫 How to reach me- nataliecorin@gmail.com or nataliecorin@outlook.com
 
 <!---
 Natalie2379/Natalie2379 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
